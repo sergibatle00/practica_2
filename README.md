@@ -1,1 +1,1 @@
-# practica_2
+Sergi Batle
